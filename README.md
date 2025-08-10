@@ -38,7 +38,7 @@ To assess the financial health, profitability, liquidity, solvency, and operatio
 
 Key Takeaways:
 
-📌 Strong revenue and profit growth from FY 2022 to FY 2024.
+📌 Strong revenue and profit growth from FY 2022 to FY 2025.
 
 📌 Stable capital structure with minimal debt and robust reserves.
 
