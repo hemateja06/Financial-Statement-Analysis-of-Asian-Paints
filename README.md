@@ -55,7 +55,6 @@ Key Takeaways:
 
 📌 Financial platforms like Screener.in, Moneycontrol
 
-📌 NSE India corporate filings
 
 📌 Academic and financial literature for methodologies
 
